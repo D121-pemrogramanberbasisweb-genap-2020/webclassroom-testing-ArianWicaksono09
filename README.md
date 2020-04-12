@@ -1,3 +1,3 @@
-Nama : 
+Nama : Arian Wicaksono
 
-NIM  :
+NIM  : D121181009
